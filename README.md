@@ -1,5 +1,5 @@
 ### Hi there 👋
-![github-banner-img](https://github.com/Aaban-Nayeem/Aaban-Nayeem/assets/87091983/0fac0532-bbf6-4340-952a-c3a01c6a54ea)
+![pride month](https://github.com/Aaban-Nayeem/Aaban-Nayeem/assets/87091983/4da3b47d-c4f2-401f-aa84-d28aa7196555)
 
 <!--
 **Aaban-Nayeem/Aaban-Nayeem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
